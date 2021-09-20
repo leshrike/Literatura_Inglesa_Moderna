@@ -82,20 +82,70 @@ In america this movement was mirrored and was called the "Transcendental Period"
 
 ### Known Transcendentalist Authors
 
-**Emmerson** -> Emerson was known both as a poet an as one of the leads in the transcendentalist movement, his most relevant works are an essay titled **"English Traits"** poems like **"Brahama"** or **"Uriel"**.
-**Thoreau** ->
+- **Emmerson** -> Emerson was known both as a poet an as one of the leads in the transcendentalist movement, his most relevant works are an essay titled **"English Traits"** poems like **"Brahama"** or **"Uriel"**.
+- **Thoreau** ->
 
 
 ### Known Poets during the Romanticism
 
-**George Gordon Byron** -> Also known as **"Lord Byron"**, is one of the greatest poets. He is the creator of **"Don Juan"** and **"Childe Harold’s Pilgrimage"**.
+- **George Gordon Byron** -> Also known as **"Lord Byron"**, is one of the greatest poets. He is the creator of **"Don Juan"** and **"Childe Harold’s Pilgrimage"**.
 
-**William Blake** -> Blake is considered an influential figure in the romantical era, but during his lifespan his crafts were not that known. He was a poet and a painter. His poems **"The Lamb"** and **"The Book of Thel"** are quite known nowadays.  
+- **William Blake** -> Blake is considered an influential figure in the romantical era, but during his lifespan his crafts were not that known. He was a poet and a painter. His poems **"The Lamb"** and **"The Book of Thel"** are quite known nowadays.  
 
-**Percy Bysshe Shelly** -> Known as the husband of Mary Shelly and as one of the biggest poets of the Romantic Era. He is known for poems such as **"Art thou pale for weariness"** or **"The cloud"**.
+- **Percy Bysshe Shelly** -> Known as the husband of Mary Shelly and as one of the biggest poets of the Romantic Era. He is known for poems such as **"Art thou pale for weariness"** or **"The cloud"**.
 
-**John Keats** -> Keats was a prominent poet in the second generation of Romantic poets. He is known as the author of **"Isabella"**,**"The Autumn"** or **"Hyperion"**.
+- **John Keats** -> Keats was a prominent poet in the second generation of Romantic poets. He is known as the author of **"Isabella"**,**"The Autumn"** or **"Hyperion"**.
 
 >**FUN FACT**: Percy Bysshe Shelly tried to appropriate the craft of his wife,  Mary Shelly, **"FRANKENSTEIN"**.
 
+***
 
+## Gothic Period
+
+This period or way of thinking overlaped with the Victorian Period, that extended from 1790 to 1890, where a lot of masterpieces like "Dracula" were created.
+
+This period saw the appearence of the **terror** genre.
+
+### Known Gothic Authors
+
+- **Bram Stocker** -> This novelist created a classic, **"Dracula"** and he is well known for it 
+- **Edgar Allan Poe** -> Known as one of the biggest terror authors to date. He is known for **"The Murders in the Rue Morgue"**.
+- **Hawthorne** -> His biggest work is the well known **"The Scarlet Letter"**.
+
+>**FUN FACT** -> Poe is known as one of the precursors in detective stories with his tale "The Murders in the Rue Morgue". 
+
+***
+
+## Victorian Period
+
+This timespan saw a continuation on the romanticism tendencies and happened under Queen Victoria's Monarchy.
+
+**Alfred Tennyson**, known as the best poet in this period, follows the romanticism traditions.
+
+## Known Victorian Authors
+
+- **Alfred Tennyson** ->
+- **Charles Dickens** ->
+- **William Thackeray** ->
+- **George Elliot**->
+- **The Brantë Sisters** ->
+- **Thomas Hardy** ->
+- **Oscar Wilde**-> This author follows the Aestheticism movement and during its duration will create **"The picture of Dorian Gray"**.
+
+
+```
+ FALTA EL PERIODO GOTICO Y EL PERIODO VICTORIANO Y  PRE WWII
+
+Portrait of the Artist as a young man by James Joyce
+
+Los góticos implementan el modelo döppleganger (Dobles) como Jekyll & Mr Hide.
+
+```
+
+## Post-war Literature
+
+Also known as Post-Modernism, it is very difficult to define because it has no clear line between modernism and post-modernism.
+
+This period introduced new techniques such as the Theatre of the absurd, associated with Samuel Beckett and Harold Pinter. We are going to notice new modes in poetry and fiction.
+
+Outstandig authors  in english literature: Philip Larkin, Ted Hughes, Salman Rushdie,Kazuo Ishiguro and Tom Stoppard. Non caucassian writers are more "cannon" such as Toni Morrison, Sandra Cisneros or Zora Neal Hurston due to Multiculturalism.
