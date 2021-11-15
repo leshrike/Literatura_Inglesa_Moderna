@@ -13,7 +13,7 @@
 ## Table of Literary Genres
 
 | Literary Genre | First Appearence |
-| ---            |:---              |
+| ---            | ---              |
 | Poetry         | 19th Century     |
 | Novel          | 18th Century     |
 | Theatre        | ND               |
