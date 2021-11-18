@@ -153,10 +153,62 @@ Vivi is highly educated and lives a comfortable life, but she is not aware of th
 
 His intention was to make the audience feel uncomfortable. The play has horrified everyone who has head it but only as a hones treatment of the topics at hand.  
 
-
-Vivie was the image of the concept **New Woman**, and he explained that he wanted to put on the stage for the first time , the highly educated, capable and independent young woman. 
+Vivie was the image of the concept **New Woman** in the 1880, and he explained that he wanted to put on the stage for the first time , the highly educated, capable and independent young woman. 
 This "New Woman" concept, was related to prefering the society of men to the woman, and being a person who does not care about romance or art,  and who can become respectabe through sheer usefuless & strength.
 
 Miss warren represents the "New Woman" model, a woman who was interested in her education, personal dignity, growth, and who is not interested in the traditional idea of having a husband or children.
 
-Vivi's high education and morals, the conflict soon arises and ends their relationship as mother and daughter. Another result of Vivie's schooling and upbringin is when she becomes aware of how women are held back in society from attaining fame and fortune.
+Vivie's high education and morals, the conflict soon arises and ends their relationship as mother and daughter. Another result of Vivie's schooling and upbringin is when she becomes aware of how women are held back in society from attaining fame and fortune.
+
+Shaw wants to stress the dificult nature of the relationship between mother and daughter.
+
+The ideal of the victorian motherhood was "the angel in the house", was a virtuous wife and mother in need of male protection provided by a husband or father. Her entire purpose as to devote herself to the household and the family within the domestic sphere."Woman were owned by their husbands". Their house were their place to be, inside, not in the public sphere (they were forbidden to be in public).
+
+Married women could not own property in their own names or keep their earnings (instead it belonged to their husbands). Women could not vote.
+
+At the end of the XIX century, there were a few reforms. The Married Women's Property Act of 1882 allowed woman to keep their earnings and hold property in their own names.
+
+Later, at the beginning of the 20th Century the NEW WOMAN represented a young, well-educated who rejected the restrictions on dress, behaviour, education or decorum placed on women by Victorian society/culture.
+
+Woman started to attend universities in 1869 they were the first admitted to Cambridge to study although they were not allowed to take degrees. By 1902 there were over 200 doctors in England and in 1895 the first woman qualified as a dentist.
+
+As the suffrage movement gained greater influence a new model of femininity developed: The new woman. Wich wholly embodied feminist aspirations at the turn-of-the-century.
+
+Cooley's 1904 "The new Womanhood" presents an ideal description of this new identity:
+
+" The finest archievement of the new woman has been personal liberty.. the new woman in the sense of the best woman, the flower of all the womanhood of past ages, has come to stay - if civilization is to endure.
+The sufferings of the past have strenghtened her, maternity has deepened her, education is broadening her - and she knows that she must perfect herself if she would perfect hte race and leave her imprint upon immortality, though her offspring or her works. " (On the role of maternatory)
+
+Cooley's celbratory vision emphasizes the ability of modern women to pursue a dual existence within public and private spheres.
+
+Mrs Warren profession is a defense of women and a condemnation of Capitalism as a whole. Crofts, for example, gets benefits from Capitalism, while the poor, like Mrs Warren, must trade dignity and morality success.
+
+
+SHAW stated about his first plays "My three first plays Widower's Houses, The philanderer, and Mrs Warren's proffession were what people call realistic".They were dramatic pictures of middle class society from the point of view of a socialist who regards the basis of that society as thoroghly rotten economically and morally. And he also states regarding Mrs Warren's profession:
+
+" I am convinced that fine art is the most seductive, the most effective means of moral propagandism of in the world " - Bernard SHAW (a modo de propagar la existencia de los dilemas morales contemporales).
+
+
+****** STUDY QUESTION
+
+1.- Theme: confronting the truth: Reaction? Discovery? Keeping secrets?
+
+1.- Mrs. warren's profession was first published in 1898 ....
+ 
+In the "Preface" to the first "Umpleasant", volume of this collection, shaw states that "I must .. warn my readers that my attacks are disrected against themselves, not against my stage figures"
+Mrs Warren's profession stands as a condemnsation of socciety at large, with several of its characters portrayed with  negative connotations. Who are they?
+Cite and analyze a few passages that seem to do this (Suggestion: you might start by considering how the middle-class is represented in this play. Which characters are the most middle-class?)
+
+
+2.- The stage directions in this play are long and detailed. What is the effect of such long descriptions ? What do they suggest about this play? Analyze one of the long stage directions: what does it contribute to the meaning of the play? (Use a stage direction that is at least four lines long, do not use the long scene-setting passages that begin each act. Stage directions that describe gestures-rather than only dress and appearence- will be more fruitful).
+ 
+
+
+
+3.- In the sense that she is the central character, and the one who moves most strikingly from ignorance to knowledge, Vivian Warren is the heroine of Mrs Warren's Profession. Does the play vindicate her actions at the end of the play? If not, is there some other character whose actions are vindicated? In other words, who is doing the right thing, according to the play? Cite a few passages.
+
+
+
+
+4.- Near the end of the play, Praed, an architect, tells Vivie Warren to travel to Italy "to saturate" herself with beauty and romance. Is this what Vivie really needs at this moment? Why or why not?
+Remember to justify your answe in terms of the play not your own feelings about what is best for Vivie.
